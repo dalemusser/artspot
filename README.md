@@ -19,3 +19,5 @@ Information Resources
 [Spot at Starbucks 1](https://www.linkedin.com/posts/dalemusser_autonomoussystems-muitprogram-activity-6804100683625828352-zs1L)
 
 [Spot at Starbucks 2](https://www.linkedin.com/posts/dalemusser_autonomoussystems-muitprogram-activity-6804100211854733312-0mj_)
+
+[Agnieszka Pilat (artist)](https://www.linkedin.com/in/agnieszka-pilat-3a7ab6a4/)
