@@ -15,3 +15,7 @@ Information Resources
 [Future Robots - Boston Dynamics Robot Family Dance for New Year (YouTube)](https://youtu.be/FoyR1U7Y7Po)
 
 [How Boston Dynamics' Spot Robot Learns to Dance! (YouTube)](https://youtu.be/2SpNjBI1lu0)
+
+[Spot at Starbucks 1](https://www.linkedin.com/posts/dalemusser_autonomoussystems-muitprogram-activity-6804100683625828352-zs1L)
+
+[Spot at Starbucks 2](https://www.linkedin.com/posts/dalemusser_autonomoussystems-muitprogram-activity-6804100211854733312-0mj_)
